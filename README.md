@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to freak out less
 - 💞️ I’m looking to collaborate on anything that makes this world suck less.
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: lover of natural wines and onsen, i've yet to find a place that allows both at the same time, but a girl can dream. comes home to two cat overlords and a sexy man
+- ⚡ Fun fact: lover of natural wines and onsen, i've yet to find a place that allows both at the same time, but a girl can dream. comes home to two cat overlords and a sexy snowboarding salsa dancing geek of a man
 
 <!---
 samsuimao/samsuimao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
